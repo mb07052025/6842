@@ -8,7 +8,7 @@
 
 点击访问：<a href="https://74mao.com/">Telegram频道传送门</a>
 
-点击访问：<a href="https://qfwfg.pages.dev/>黑料·黑料网</a>
+点击访问：<a href="https://qfwfg.pages.dev/">黑料·黑料网</a>
 
 点击访问：<a href="https://sdfsh.pages.dev/">黑料网独家爆料</a>
 
@@ -31,4 +31,4 @@ Telegram频道传送门：甄选全网优质频道，涵盖八卦、资讯、资
 
 黑料大事记详细梳理娱乐圈与网红界的重要爆料事件，从爆发到发酵，时间线清晰，内容真实。它不仅记录每一次舆论风暴的起点，也让吃瓜群众轻松回顾往年大瓜，是了解圈内内幕的绝佳工具。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/mb07052025/6842 ）</span>
